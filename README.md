@@ -1,1 +1,1 @@
-# Modern-Website-Template-2022
+# Modern-Jewellery-Website-Template-2022
